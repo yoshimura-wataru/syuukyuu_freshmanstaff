@@ -1,0 +1,1 @@
+# syuukyuu_freshmanstaff
